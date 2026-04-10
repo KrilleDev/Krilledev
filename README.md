@@ -1,5 +1,5 @@
 # 💫 About Me:
-Developer and system administrator based in Germany<br>Owner of snow-studio <br>Manager of Short Studio
+𝗗𝗲𝘃𝗲𝗹𝗼𝗽𝗲𝗿 𝗮𝗻𝗱 𝘀𝘆𝘀𝘁𝗲𝗺 𝗮𝗱𝗺𝗶𝗻𝗶𝘀𝘁𝗿𝗮𝘁𝗼𝗿 𝗯𝗮𝘀𝗲𝗱 𝗶𝗻 𝗚𝗲𝗿𝗺𝗮𝗻𝘆<br>𝗢𝘄𝗻𝗲𝗿 𝗼𝗳 𝘀𝗻𝗼𝘄-𝗗𝗲𝘃𝗲𝗹𝗼𝗽𝗺𝗲𝗻𝘁<br>𝘏𝘦𝘢𝘥 𝘋𝘦𝘷𝘦𝘭𝘰𝘱𝘦𝘳 𝘍𝘳𝘰𝘮 𝘚𝘩𝘰𝘳𝘵-𝘚𝘵𝘶𝘥𝘪𝘰𝘴
 
 
 ## 🌐 Socials:
